@@ -1,4 +1,4 @@
-# Izabrana poglavlja iz informacijskih znanosti
+# Izabrana poglavlja iz informacijskih znanosti (ak. god. 2018./2019.)
 
 ## Informatika ya knjižnice i arhive
 
